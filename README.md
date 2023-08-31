@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/rushikeshshelke?tab=repositories](https://github.com/rushikeshshelke?tab=repositories)
 
-- 📄 Know about my experiences [Loading...](Loading...)
+- 📄 Know about my experiences [https://flowcv.com/resume/mkfm1to9i1](https://flowcv.com/resume/mkfm1to9i1)
 
 - ⚡ Fun fact **I love travelling.**
 
